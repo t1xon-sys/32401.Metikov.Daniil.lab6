@@ -1,0 +1,1 @@
+# 32401.Metikov.Daniil.lab6
